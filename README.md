@@ -1,1 +1,1 @@
-# UX-Class-Activity
+# UX-Class-Activities
